@@ -1,2 +1,1 @@
 Добро пожаловать на сайт Bestwallet
-https://sun9-84.userapi.com/s/v1/ig2/3GMV4pVQhB_4q-S82sOv_MVNIBlyPqL0M9qb7W7GZzvufoLJmQ5ei3mYy5RHHLH3DGfmqdnswSmWeXoDEFvf4WCD.jpg?quality=95&as=32x30,48x45,72x68,108x102,160x151,240x227,360x340,480x453,540x510,640x604,720x680,828x782&from=bu&cs=640x0
