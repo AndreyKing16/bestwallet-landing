@@ -1,3 +1,1 @@
-# bestwallet-landing
-# best cripto wallet
-Soon 
+Добро пожаловать на сайт Bestwallet
